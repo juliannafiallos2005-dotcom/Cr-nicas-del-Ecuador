@@ -1,1 +1,1 @@
-# Cr-nicas-del-Ecuador
+# Cronicas-del-Ecuador
